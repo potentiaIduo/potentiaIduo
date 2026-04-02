@@ -2,7 +2,7 @@
 
 <img src="https://i.imgur.com/tw3bo2i.png" width="300">ㅤ
 
-[rentry  ☆(ゝω·)v](https://rentry.org/sammi)ㅤㅤ🌸ㅤㅤ[atabook](https://polarityduo.atabook.org/) 
+[rentry  ☆(ゝω·)ɞ](https://rentry.co/spygIass)ㅤㅤ🌸ㅤㅤ[atabook](https://polarityduo.atabook.org/) 
 
 dncopy my skins ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
