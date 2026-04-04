@@ -10,6 +10,5 @@ dncopy my skins ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
  ![](https://komarev.com/ghpvc/?username=pruhun&color=C198CF) <br />
 
-   im planning to trade away [@ashswagin](https://github.com/ashswagin) for a wifies related user I don't want it anymore lol
 
 <img src="https://i.imgur.com/P4PDQnC.png" width="300">ㅤ
