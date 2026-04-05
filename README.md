@@ -1,8 +1,8 @@
 <div align="center">
 
-<img src="https://i.imgur.com/dwqd2a3.png" width="300">ㅤ
+<img src="https://i.imgur.com/P4PDQnC.png" width="300">ㅤ
 
-[rentry  ☆(ゝω·)ɞ](https://rentry.co/spygIass)ㅤㅤ🌸ㅤㅤ[atabook](https://wifie.atabook.org/) 
+[rentry  ☆(ゝω·)ɞ](https://rentry.co/spygIass)ㅤ ˗ˋˏ ♡ ˎˊ˗ㅤㅤ[atabook](https://wifie.atabook.org/) 
 
 dncopy my skins ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
@@ -10,5 +10,3 @@ dncopy my skins ㅤㅤㅤʚ(꒪ˊ꒳ˋ꒪)ɞㅤㅤㅤㅤ♡
 
  ![](https://komarev.com/ghpvc/?username=pruhun&color=C198CF) <br />
 
-
-<img src="https://i.imgur.com/P4PDQnC.png" width="300">ㅤ
